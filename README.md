@@ -5,4 +5,4 @@ subhash is now add to this file
 
 Kunal Kushwaha learing github amazing..
 anasuya made this change
-
+mayuri is a homeopathy student
